@@ -1,5 +1,5 @@
 # you thought
-[this](ofri52.gihub.io) [isnt](ofri52.gihub.io) [the](ofri52.gihub.io) [right](ofri52.gihub.io) [website](https://ofri52.github.io/)
-[keep](ofri52.gihub.io) [trying.](ofri52.gihub.io) [sike](ofri52.gihub.io) [dont](ofri52.gihub.io) [try](ofri52.gihub.io) [never](ofri52.gihub.io) [cus](ofri52.gihub.io) [i](ofri52.gihub.io) [***GOT YOU***](ofri52.github.io)
+[this](ofriz52.gihub.io) [isnt](ofriz52.gihub.io) [the](ofriz52.gihub.io) [right](ofriz52.gihub.io) [website](https://ofriz52.github.io/)
+[keep](ofriz52.gihub.io) [trying.](ofriz52.gihub.io) [sike](ofriz52.gihub.io) [dont](ofriz52.gihub.io) [try](ofriz52.gihub.io) [never](ofriz52.gihub.io) [cus](ofriz52.gihub.io) [i](ofriz52.gihub.io) [***GOT YOU***](ofriz52.github.io)
 [🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
-](ofri52.gitub.io)
+](ofriz52.gitub.io)
